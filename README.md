@@ -22,6 +22,8 @@ I am just a tech obsessed kid in with big dreams😇<br>
 1. my website
 2. this thing
 3. my browser
+4. flappy bird
+5. big file creator
 
 ## My rants/blog(some time every week ig)<br>
 5/16/2024: AHHHHH SCHOOL IS SO HORRIBLE!! SO MUCH HOMEWORK!! ITS 1 AM!! OMG IM SO TIRED<br>
