@@ -27,3 +27,4 @@ I am just a tech obsessed kid in with big dreams😇<br>
 
 ## My rants/blog(some time every week ig)<br>
 5/16/2024: AHHHHH SCHOOL IS SO HORRIBLE!! SO MUCH HOMEWORK!! ITS 1 AM!! OMG IM SO TIRED<br>
+5/21/2024: I WILL DESTROY MY SCHOOL. i cant believe my school admin actually gets paid.
